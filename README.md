@@ -40,7 +40,7 @@ Your data is stored as long as your account exists. You may delete your account 
 
 ## Contact
 
-Questions about this policy? Email us at: soundflipai@gmail.com
+Questions about this policy? Email us at: michaeltyiska@gmail.com
 
 ## Changes to This Policy
 
